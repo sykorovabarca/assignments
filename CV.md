@@ -36,7 +36,7 @@ Assistance with laboratory and field experiments, data entry, etc.
 ### HT International, s.r.o.
 06/2014 - 06/2015, Junior Account Manager
 
-###Comics Point
+### Comics Point
 2013 - 2014, Shop Assistant
 ### MANN HUMMEL (CZ), s.r.o.
 2009 - 2011, Summer job
